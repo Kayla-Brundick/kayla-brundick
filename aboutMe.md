@@ -1,4 +1,3 @@
-https://github.com/Kayla-Brundick/kayla-brundick/blob/master/babies%20%231.jpg?raw=true 
 
 For those who don’t know me I am currently a Junior and an English Major with a double minor in Writing and Spanish at Christopher Newport University https://cnu.edu/. I grew up in Northern Virginia, specifically in Loudoun County, with one younger brother who is a Freshmen at Christopher Newport University as well. 
 
