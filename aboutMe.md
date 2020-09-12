@@ -1,4 +1,5 @@
- 
+https://github.com/Kayla-Brundick/kayla-brundick/blob/master/babies%20%231.jpg?raw=true 
+
 For those who don’t know me I am currently a Junior and an English Major with a double minor in Writing and Spanish at Christopher Newport University https://cnu.edu/. I grew up in Northern Virginia, specifically in Loudoun County, with one younger brother who is a Freshmen at Christopher Newport University as well. 
 
 My first semester of college, I attended Longwood University in Farmville, Virginia as a student of their exclusive nursing program http://www.longwood.edu/nursing/. Having a change of heart and no idea what I wanted to do anymore, I decided to move back home and attend the local community college in NOVA in order to still maintain credits with the ability to live at home and decide on a new future that was better suited to my interests. After touring Christopher Newport in May of 2019, I absolutely fell in love with the campus and decided this would be my new home. Having gone to three different colleges in one year, I had a rocky start to my college career; however, I have found my home at Christopher Newport University and plan to graduate with a bachelor’s degree in English in the spring of 2022. 
